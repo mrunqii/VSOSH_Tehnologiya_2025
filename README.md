@@ -1,0 +1,1 @@
+# VSOSH_Tehnologiya_2025
